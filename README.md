@@ -1,2 +1,12 @@
-# cosmotrade
-cosmotrade
+Hello. I am a sales manager of equipment for beauty salons, hairdressers. If you open a salon and do not understand what to start with, I am always glad to assist you. You can contact me here https://cosmotrade.com.ua . If you have already found the salon of your own dreams and are now ready to shift the focus from searching for the right location to actions in the store. One of the next steps is to decide what equipment and furniture for a hairdresser, beauty or nails you need to buy. This process can be quite difficult.
+Even if you open the newest salon, everybody is waiting for you all the same, that you will provide a completely professional service to your customers - after all, they will pay great money for their treatment! Therefore, it is extremely important to have a wide selection of equipment that meets all their needs for hair and beauty.
+In order to assist you in this process, we have compiled a handy guide of products that you will need to create your personal salon.
+Furniture for hairdressers and beauty salons
+In beauty salons and hairdressers there are a lot of different pieces of furniture for the salon, necessary for the greatest convenience of customers and, of course, for their healing!
+Cosmotrade provides high-quality furniture for hairdressers at the best cost! In Cosmotrade, there is everything that is necessary for any barber shop or beauty salon.
+Reception - for buyers to register and say once, arriving at their destination. Learn more about the significance of creating a cute reception area here.
+Chairs for salons or hairdressers. If you open a hairdresser or a hairdresser, one of the most important things you buy is the chair where your customers will do their hair. Make sure that it is comfortable and able to move smoothly up and down, allowing you to take out your hair at different angles.
+backwash units - backwash the unit in which you will wash the hair of your customers; it must be in at least some barber shop. They are available in different colors and styles at a cost to satisfy all
+Styling units - whether it is a wall or an island section, they are important for at least some salon, to allow buyers to see the final, the results of their own procedures. They in the same spirit have the necessary shelf to save. We have a huge selection of equipment, contact us and we will help you constantly.
+Buy our whole set of furniture for hairdressers and beauty salons to find out more ...
+
